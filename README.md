@@ -1,4 +1,10 @@
 # Skylfer
 Oii 💗
+
 Meu nome é Gabrieli Silva Linhares
-<img src="https://gifdb.com/gif/anime-boy-vanitas-no-carte-smile-iuy57wuyyyt69e5s.html">
+
+**Para entrar em contato comigo**😁
+
+<gabrielilinhares31@gmail.com>
+
+![]( https://tenor.com/bmLVJ.gif )
